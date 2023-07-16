@@ -1,0 +1,1 @@
+# Veer-night- Spirit world:u don't know what love is nor how to love.U make a lot of assumptions based on ignorance. To truly be able to love. U have first to mature n be taught the ways of love by one who knows all the secrets of love. ignorance will get u nowhere. Throw pride ignorance away
